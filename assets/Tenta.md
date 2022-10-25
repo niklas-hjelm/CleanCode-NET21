@@ -1,0 +1,1 @@
+# Tenta på teoretiska kunskaper
